@@ -17,7 +17,7 @@ I'm a software developer who is passionate about making open-source more accessi
 - 🤔 Natural Human Intelligence is still mind-boggling...
 - 🤖 Unregulated AI terrifies me... 
 - 📫 But you can always reach me at: [Twitter](https://twitter.com/syntaxlexx)
-- 😄 Pronouns: What is that?
-- ⚡ Fun fact: What if the universe is a collection of massive atoms, making the Sun just a mere electron?
+- 😄 Pronouns: Meh!
+- ⚡ Fun fact: What if the universe is a collection of massive atoms, making the Sun just a mere nucleus?
 
 Let's catch up on socials, expecially on [Twitch](https://twitch.tv) as we troll the likes of [ThePrimeagen](https://twitch.com/ThePrimeagen) 😄.
