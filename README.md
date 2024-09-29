@@ -18,6 +18,6 @@ I'm a software developer who is passionate about making open-source more accessi
 - 🤖 Unregulated AI terrifies me... 
 - 📫 But you can always reach me at: [Twitter](https://twitter.com/syntaxlexx)
 - 😄 Pronouns: Meh!
-- ⚡ Fun fact: What if the universe is a collection of massive atoms, making the Sun just a mere nucleus?
+- ⚡ Fun fact: What if we're just fodder for the planet?
 
 Let's catch up on socials, expecially on [Twitch](https://twitch.tv) as we troll the likes of [ThePrimeagen](https://twitch.com/ThePrimeagen) 😄.
